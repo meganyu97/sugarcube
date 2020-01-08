@@ -22,5 +22,5 @@ reads the same words
 my morning routine
 watching the patriarchy assume the position
 inhaling the liquid-brewed cocaine of techno-capitalism
-exhaling the normalcy of human being
+exhaling the normalcy of human-being
 exchanging their bitter personalities for my sweet transaction with espresso.
